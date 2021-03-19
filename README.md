@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @hEVYYY
+- 👀 I’m interested in new technologies.
+- 🌱 I’m currently learning at university: Państwowa Uczelnia im. Stefana Batorego
+- 📫 How to reach me: m.jarota.2013@wp.pl
